@@ -15,13 +15,17 @@ Ya que estamos cursando juntos ingenieria les comento cuales son las cosas que m
 ### Algo que no tenga tanto que ver con ingenieria ###
 -----
 Tambien les comparto algunos otros gustos que capaz les interesan
-> Soy musico, mi ultimo trabajo fue una [Sinfonia](https://www.youtube.com/watch?v=1h-Zx3_BETQ) y tambien doy clases)
->
+> Soy musico
+> 
+> Mi ultimo trabajo fue una [Sinfonia](https://www.youtube.com/watch?v=1h-Zx3_BETQ) y tambien doy clases)
+> 
+> 
 > Filosofia
 >
-> Literatura, aca dejo mi top 3 de libros (soy mas de escribir que de leer igualmente)
->           * "Dune" Frank Herbert (el primer libro posta de ciencia ficcion)
->           * El resplandor (la primer cosa que me hizo cagar hasta las patas solo con palabras)
->           * La biblia (sacando el tema de la religion. En el libro tenes un viejo con baston que mueve oceanos y un joven vidente que convierte agua en vino, es como un anime )
-
+>
+> Literatura, aca dejo mi top de libros (soy mas de escribir que de leer igualmente)
+> 
+> - "Dune" Frank Herbert (el primer libro posta de ciencia ficcion)
+> - "El resplandor" (la primer cosa que me hizo cagar hasta las patas solo con palabras)
+> - "La biblia" (Un viejo que mueve oceanos, un joven vidente que convierte agua en vino, una inundacion apocaliptica que arrasa con la humanidad, una torre que llega hasta las nubes que contiene todos los libros y podria seguir... Si lo ven desde una perspectiva literaria es una locura)
 
