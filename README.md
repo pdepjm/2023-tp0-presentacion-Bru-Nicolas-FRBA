@@ -19,6 +19,9 @@ Tambien les comparto algunos otros gustos que capaz les interesan
 >
 > Filosofia
 >
-> Literatura
+> Literatura, aca dejo mi top 3 de libros (soy mas de escribir que de leer igualmente)
+>           * "Dune" Frank Herbert (el primer libro posta de ciencia ficcion)
+>           * El resplandor (la primer cosa que me hizo cagar hasta las patas solo con palabras)
+>           * La biblia (sacando el tema de la religion. En el libro tenes un viejo con baston que mueve oceanos y un joven vidente que convierte agua en vino, es como un anime )
 
 
