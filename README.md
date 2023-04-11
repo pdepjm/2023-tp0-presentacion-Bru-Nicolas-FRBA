@@ -9,7 +9,7 @@
 -----
 Ya que estamos cursando juntos ingenieria les comento cuales son las cosas que mas me gustan en general de esta (por ahora)
 * Energias renovables/verdes (Nuclear, Solar, Eolica, Hidraulica o Geotermica)
-* Matematica (aguante $0=e^iπ+1$)
+* Matematica
 * Inteligencia Artificial (las imagenes de la inteligencia artificial son una guasada)
 
 ### Algo que no tenga tanto que ver con ingenieria ###
