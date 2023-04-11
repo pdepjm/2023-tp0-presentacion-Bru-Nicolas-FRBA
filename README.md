@@ -17,7 +17,7 @@ Ya que estamos cursando juntos ingenieria les comento cuales son las cosas que m
 Tambien les comparto algunos otros gustos que capaz les interesan
 > Soy musico
 > 
-> Mi ultimo trabajo fue una [Sinfonia](https://www.youtube.com/watch?v=1h-Zx3_BETQ) y tambien doy clases)
+> Mi ultimo trabajo fue una [Sinfonia](https://www.youtube.com/watch?v=1h-Zx3_BETQ) y tambien doy clases
 > 
 > 
 > Filosofia
